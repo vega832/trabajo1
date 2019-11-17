@@ -1,2 +1,2 @@
-# trabajo1
-trabajo nro1
+#vega huaman maria cristina
+#rodriguez ramon esthefany
